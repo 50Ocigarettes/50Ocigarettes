@@ -1,16 +1,14 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=PIanetIords&label=🪐&color=00AAFF) -> sign my ata [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://mapiccs.atabook.org) :-3
 
-<!--
-**50Ocigarettes/50Ocigarettes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/duaIitiesduo) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
 
-Here are some ideas to get you started:
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31a6d63tdpsherhdthoqwugqwsxm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false">
+  </a>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FFFFFF&width=435&lines=500+cigarettes+🤤)](https://git.io/typing-svg) 
+
+
+ 
