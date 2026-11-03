@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=PIanetIords&label=Orbitals&color=7A40AE) -> sign my ata [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) (⁠￣⁠ヘ⁠￣⁠;⁠)
+![](https://komarev.com/ghpvc/?username=PIanetIords&label=Orbitals&color=7A40AE)  -> sign my ata [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) (⁠￣⁠ヘ⁠￣⁠;⁠)
 
 [𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/duaIitiesduo) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
 
