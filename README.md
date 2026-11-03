@@ -8,7 +8,7 @@
   </a>
 </p>
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FFFFFF&width=435&lines=500+cigarettes+🤤)](https://git.io/typing-svg) 
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FFFFFF&width=435&lines=Ask+before+nominating+me+on+those+accounts)](https://git.io/typing-svg) 
 
 
  
