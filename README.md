@@ -2,10 +2,6 @@
   <tr>
     <td>
 
-
-<img width="1280" height="230" alt="1000167518" src="https://github.com/user-attachments/assets/7f020d1e-7c90-4cc3-bf96-a01357a03d67" />
-
-
   ![](https://komarev.com/ghpvc/?username=PIanetIords&label=Orbitals&color=7A40AE) -> sign my ata [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) :trollface:
 
 [𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/duaIitiesduo) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
@@ -18,5 +14,10 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FFFFFF&width=435&lines=500+cigarettes+🤤)](https://git.io/typing-svg) 
 
+<p align="center">
+  <a 
+ <img width="200" height="200" alt="1000167519" src="https://github.com/user-attachments/assets/b07e7ec2-d330-4d6b-9b07-9e28b5534dae" />
+</a>
+</p>
 
  
