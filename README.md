@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=PIanetIords&label=🥓&color=E35458)  -> sign my ata [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) :trollface:
 
-[𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/baconcoIas) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
+[𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/coIabacons) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
