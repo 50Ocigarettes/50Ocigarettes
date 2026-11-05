@@ -1,6 +1,6 @@
-![](https://komarev.com/ghpvc/?username=PIanetIords&label=Orbitals&color=7A40AE)  -> sign my ata [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) (⁠￣⁠ヘ⁠￣⁠;⁠)
+![](https://komarev.com/ghpvc/?username=PIanetIords&label=🥓&color=E35458)  -> sign my ata [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) :trollface:
 
-[𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/duaIitiesduo) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
+[𝗥𝗲𝗻𝘁𝗿𝘆](https://rentry.co/baconcoIas) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -10,5 +10,3 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FFFFFF&width=435&lines=Hi+sign+atabook+bmf+im+cool+bye)](https://git.io/typing-svg) 
 
-# aaaaaa LIMITED TIME OFFER!!!!! MAKE ME AN EDDTORD RENTERY FOR SKINS !!!! THREE PONIES MAXIMUM!!!!!!!! ADD NE ON DISCORD FOR MORE INFRO MY USER IS m_apicc PLSPSL
- 
