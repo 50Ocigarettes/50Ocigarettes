@@ -10,3 +10,6 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FFFFFF&width=435&lines=Hi+sign+atabook+bmf+im+cool+bye)](https://git.io/typing-svg) 
 
+<img width="195" height="301" alt="1000167644" src="https://github.com/user-attachments/assets/4309dfeb-871f-4cf3-9796-f24abaf5c977" />
+DAFAK DAFAK!!!!!!!! first time getting copied in the big 26 !!!! hahah... ponytowners.
+
