@@ -19,6 +19,4 @@
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FFFFFF&width=435&lines=500+cigarettes+🤤)](https://git.io/typing-svg) 
 
  <img width="195" height="301" alt="1000167644" src="https://github.com/user-attachments/assets/d2c37c1e-bbbe-4a47-be79-eadbfc95ba6e" />
-<img width="168" height="228" alt="1000167646" src="https://github.com/user-attachments/assets/9eba6395-ef6d-4a3c-bec7-eb4e1433c1d9" />
-DAFAK DAFAK?????? ponytowners brah hashtag annihilate them. AVOID taking heavy inspiration wtf 😭😭
- 
+I'M LAUGHING SO BAD OMG I personally don't care if you take inspiration 😭😭 but omds this is frying me so bad this gets a good laugh out of me I'm keeping it here for a while LOL.
