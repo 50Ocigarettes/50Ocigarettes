@@ -6,7 +6,7 @@
   <tr>
     <td>
 
-  ![](https://komarev.com/ghpvc/?username=PIanetIords&label=Orbitals&color=7A40AE) -> sign mi [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) for aura gain :trollface:
+  ![](https://komarev.com/ghpvc/?username=PIanetIords&label=Orbitals&color=7A40AE) -> sign mi [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://tordlarsson.atabook.org) to aura gain :trollface:
 
 [𝗙𝗹𝘂𝗳𝗳𝗹𝗲](https://fluffle.cc/mapiccs) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://diabetesduo.straw.page) 
 
